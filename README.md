@@ -1,0 +1,1 @@
+PhonePe is a digital payments and financial services company in India, offering a platform for various financial transactions and services. It's known for its mobile payment app, which allows users to send and receive money via UPI, recharge phones, pay bills, and more. PhonePe also provides access to financial services like insurance, mutual funds, and gold investments
